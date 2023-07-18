@@ -1,7 +1,5 @@
 # Introduction
 
-Introduction: Overview
-
 Storytelling has been an essential part of human communication for thousands of years. In recent years, it has become an increasingly popular tool in the workplace for influencing and persuading others. By using storytelling techniques effectively, you can engage your audience, build trust and rapport, and inspire action.
 
 That's where "How to Use Storytelling Techniques to Influence and Persuade in the Workplace" comes in. This book provides a comprehensive guide to using storytelling techniques to influence and persuade in the workplace. From brand storytelling to sales techniques, this book covers everything you need to know to become a master storyteller and achieve your goals.
