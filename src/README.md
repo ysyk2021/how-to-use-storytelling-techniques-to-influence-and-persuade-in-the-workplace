@@ -8,5 +8,4 @@ In this book, we'll cover topics such as storytelling for business, persuasion t
 
 This book is like having a storytelling coach at your fingertips, ready to guide you through the process of becoming a powerful communicator. By the end of this book, you'll have all the tools and strategies you need to use storytelling techniques to influence and persuade in the workplace and achieve your professional goals. So let's get started!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
