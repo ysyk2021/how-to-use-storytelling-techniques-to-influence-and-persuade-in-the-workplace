@@ -1,5 +1,3 @@
-Chapter 7: Delivering Stories with Impact
-=========================================
 
 Delivering stories with impact is essential for effective communication in the workplace. In this chapter, we will explore the importance of delivering stories with impact, strategies for doing so, and using vocal variety and body language.
 

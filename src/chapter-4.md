@@ -1,5 +1,3 @@
-Chapter 4: Using Stories to Convey Vision and Values
-====================================================
 
 Using stories to convey vision and values can be a powerful tool for effective communication in the workplace. In this chapter, we will explore the role of stories in conveying vision and values, strategies for doing so, and using storytelling frameworks and metaphors.
 

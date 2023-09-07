@@ -1,5 +1,3 @@
-Chapter 8: Measuring Storytelling Success
-=========================================
 
 Measuring storytelling success is important for understanding the impact of your communication efforts in the workplace. In this chapter, we will explore methods for measuring storytelling success, analyzing audience engagement and feedback data and KPIs, and adjusting storytelling strategies based on feedback.
 

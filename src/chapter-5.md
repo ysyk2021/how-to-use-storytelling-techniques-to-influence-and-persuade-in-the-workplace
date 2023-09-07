@@ -1,5 +1,3 @@
-Chapter 5: Using Stories to Build Stronger Relationships
-========================================================
 
 Using stories to build stronger relationships can be a powerful tool for effective communication in the workplace. In this chapter, we will explore the importance of using stories to build stronger relationships, strategies for doing so, and using personal anecdotes and relatable examples.
 

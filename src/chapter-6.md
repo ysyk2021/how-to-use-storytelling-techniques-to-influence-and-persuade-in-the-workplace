@@ -1,5 +1,3 @@
-Chapter 6: Using Stories to Persuade and Influence
-==================================================
 
 Using stories to persuade and influence can be a powerful tool for effective communication in the workplace. In this chapter, we will explore the role of stories in persuading and influencing, strategies for doing so, and using data-driven stories and emotional appeals.
 

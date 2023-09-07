@@ -1,5 +1,3 @@
-Overview of the Book
-=============================================
 
 Storytelling is a powerful tool for influencing and persuading others in the workplace. From presentations and negotiations to team building and leadership, storytelling can help individuals communicate their message effectively and make a lasting impact.
 

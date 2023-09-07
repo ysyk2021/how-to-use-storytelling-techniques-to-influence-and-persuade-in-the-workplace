@@ -1,5 +1,3 @@
-Chapter 9: Applying Storytelling Skills to Leadership
-=====================================================
 
 Applying storytelling skills to leadership can be a powerful tool for effective communication in the workplace. In this chapter, we will explore the benefits of applying storytelling skills to leadership, strategies for doing so, and using storytelling to inspire and motivate teams.
 

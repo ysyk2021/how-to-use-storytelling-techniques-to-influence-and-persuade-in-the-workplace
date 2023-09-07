@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In today's competitive workplace, the ability to influence and persuade others can be a crucial skill for personal and professional success. Using storytelling techniques is an effective way to communicate ideas, inspire action, and create meaningful connections with others. This chapter provides an introduction to the importance of using storytelling techniques to influence and persuade in the workplace.
 

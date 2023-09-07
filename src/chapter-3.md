@@ -1,5 +1,3 @@
-Chapter 3: Crafting Compelling Stories
-======================================
 
 Crafting compelling stories can be a powerful tool for influencing and persuading in the workplace. In this chapter, we will explore the importance of crafting compelling stories, strategies for crafting these stories, and using story structure and audience analysis techniques.
 
