@@ -1,5 +1,4 @@
-Chapter: Strategies for Crafting Compelling Stories
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the strategies and techniques essential for crafting compelling stories that have a lasting impact in the workplace. Effective storytelling is an art that can be honed with practice and a deep understanding of the key elements that make stories engaging and persuasive.
 

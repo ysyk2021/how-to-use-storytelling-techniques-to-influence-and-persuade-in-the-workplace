@@ -1,5 +1,4 @@
-Chapter: Strategies for Using Storytelling to Influence and Persuade
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for leveraging storytelling techniques to enhance your influence and persuasion skills in the workplace. Storytelling is a powerful tool that can captivate audiences, convey complex ideas, and inspire action.
 

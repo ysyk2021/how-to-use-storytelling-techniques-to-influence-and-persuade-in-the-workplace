@@ -1,5 +1,4 @@
-Chapter: The Importance of Crafting Compelling Stories in the Workplace
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the paramount importance of crafting compelling stories within the workplace. Stories have the potential to be a powerful tool for influence and persuasion, making them an indispensable asset in professional settings.
 

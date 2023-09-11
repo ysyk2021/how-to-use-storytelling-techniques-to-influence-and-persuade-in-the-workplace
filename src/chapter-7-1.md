@@ -1,5 +1,4 @@
-Chapter: The Importance of Delivering Stories with Impact in the Workplace
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical significance of delivering stories with impact in the workplace. Effective storytelling goes beyond mere communication; it has the power to shape opinions, inspire action, and drive meaningful change within organizations.
 

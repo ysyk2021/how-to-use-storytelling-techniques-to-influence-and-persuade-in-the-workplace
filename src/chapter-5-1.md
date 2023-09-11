@@ -1,5 +1,4 @@
-Chapter: The Importance of Using Stories to Build Stronger Relationships in the Workplace
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the pivotal role that storytelling plays in cultivating and nurturing stronger relationships within the workplace. Stories are not just a means of communication; they are a bridge that connects individuals, fosters understanding, and builds trust among colleagues and teams.
 
